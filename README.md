@@ -1,1 +1,1 @@
-# Mindaugas
+# Paskaitos
